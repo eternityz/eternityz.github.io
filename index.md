@@ -1,4 +1,3 @@
-# Bin Zhang
 
 Co-founder at [Air Matters](https://air-matters.com).
 
